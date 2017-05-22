@@ -1,3 +1,3 @@
-david is going to be rich!
+david is happy!
 
 new line added
